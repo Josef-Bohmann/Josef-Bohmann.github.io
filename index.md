@@ -14,3 +14,11 @@ so dass wir in der konkreten Situation nicht über unsere volle Kapazität verf�
 * lernbegierig
 * offen
 * tolerant
+
+
+
+
+
+
+### Zitat:
+>Wer nach Erkentnis sucht, darf den Irrtum nicht fürchten.
