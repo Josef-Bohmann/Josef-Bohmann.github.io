@@ -15,10 +15,7 @@ so dass wir in der konkreten Situation nicht über unsere volle Kapazität verf�
 * offen
 * tolerant
 
-
-
-
-
-
 ### Zitat:
 >Wer nach Erkentnis sucht, darf den Irrtum nicht fürchten.
+
+<img src="http://www.bohmann.de/IMG_9913.JPG"/>
