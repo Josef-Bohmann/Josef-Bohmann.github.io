@@ -21,4 +21,4 @@ so dass wir in der konkreten Situation nicht 체ber unsere volle Kapazit채t verf�
 
 
 ### Zitat:
-"Wer nach Erkentnis sucht, darf den Irrtum nicht f체rchten."
+>Wer nach Erkentnis sucht, darf den Irrtum nicht f체rchten.
